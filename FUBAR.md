@@ -10,6 +10,10 @@ Round 2. Start!
 
 THIS IS NOT AN ERROR.....
 
+
+this is another error. Way to go
+
 ## Here I go again, messing things up!!!
 
 We should learn from our mistakes..... Should....
+
