@@ -2,4 +2,4 @@
 
 Bob & Carol will live to regret this.
 
-Ted and Alice It will be ok!
+Ted and Alice it wil be ok
