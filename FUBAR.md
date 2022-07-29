@@ -16,6 +16,11 @@ this is another error. Way to go
 
 We should learn from our mistakes..... Should....
 
+
+why did i get fired
+
 I should be fired
 
 yeah... consider yourself fired
+
+are we done
